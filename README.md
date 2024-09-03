@@ -1,5 +1,5 @@
 # 💫 About Me:
-- 👋 Hi, I’m @Phithatsanan<br>- 👀 I’m interested in ...<br>- 🌱 I’m currently learning ...<br>- 💞️ I’m looking to collaborate on ...<br>- 📫 How to reach me ...<br>- 😄 Pronouns: ...<br>- ⚡ Fun fact: ...
+- 👋 Hi, I’m Home<br>- 👀 I’m interested in ... I don't know<br>- 🌱 I’m currently learning ... I don't know<br>- 💞️ I’m looking to collaborate on ... I don't know<br>- 📫 How to reach me ... I don't know<br>- 😄 Pronouns: ... He/Him/His<br>- ⚡ Fun fact: ... I don't know
 
 
 ## 🌐 Socials:
